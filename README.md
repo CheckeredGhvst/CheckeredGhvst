@@ -14,5 +14,7 @@
 <p align="center"> ಄ вє ѕυяє тσ ѕιgη ѕтяαωραgє αη∂ αтα вєƒσяє уσυ ℓєανє...👀
 
 <p align="center"><img width="750" height="180" alt="Image" src="https://github.com/user-attachments/assets/0eedf027-e6ad-4c27-8303-bc6ce250707f" />
+  
+<p align="center">
 
 <p align="center"><img width="356" height="701" alt="Image" src="https://github.com/user-attachments/assets/2d8227a9-d014-40ec-a636-e0cb747e1f0a" />
