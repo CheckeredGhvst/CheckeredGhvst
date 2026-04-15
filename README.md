@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## 𝚁𝙴𝙰𝙳 𝙼𝙴
+<img width="666" height="375" alt="Image" src="https://github.com/user-attachments/assets/309b7a8a-207f-4fbf-9a56-67e10b550e90" />
 <!--
 **CheckeredGhvst/CheckeredGhvst** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
