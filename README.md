@@ -15,6 +15,4 @@
 
 <p align="center"><img width="750" height="180" alt="Image" src="https://github.com/user-attachments/assets/0eedf027-e6ad-4c27-8303-bc6ce250707f" />
   
-<p align="center">
-
-<p align="center"><img width="356" height="701" alt="Image" src="https://github.com/user-attachments/assets/2d8227a9-d014-40ec-a636-e0cb747e1f0a" />
+<p align="center"><img width="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/62c1b3e6-b8ed-44e6-beb7-1827cba2561c" />
