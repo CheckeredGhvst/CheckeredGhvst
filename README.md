@@ -1,5 +1,5 @@
   <p align="center">
-<p align="center"><img width="850" height="300" alt="Image" src="https://github.com/user-attachments/assets/cd25a231-b3f0-49b0-98e7-348e165c3d53" />
+<p align="center"><img width="770" height="300" alt="Image" src="https://github.com/user-attachments/assets/cc74edda-5ee8-45c5-9c7a-ce94e03b0e7a" />
 
 <p align="center"> .✦ 𝔗𝔥𝔦𝔰 𝔦𝔰 𝔣𝔬𝔯 𝔭𝔬𝔫𝔶 𝔱𝔬𝔴𝔫! ݁˖
 <p align="center"> ❅ ᴄᴀʟʟ ᴍᴇ ɢʜᴏsᴛ ᴏʀ ғɪᴠᴇ, ʙᴜᴛ ɢʜᴏsᴛ ɪs ᴘʀᴇғᴇʀʀᴇᴅ! ❅
