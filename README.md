@@ -1,4 +1,4 @@
-<p align="center"><img width="770" height="300" alt="Image" src="https://github.com/user-attachments/assets/cc74edda-5ee8-45c5-9c7a-ce94e03b0e7a" />
+<p align="center"><img width="1000" height="300" alt="Image" src="https://github.com/user-attachments/assets/9a0e7e20-ab06-427c-a07a-a5c3eec43c80" />
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=CheckeredGhvst&color=9cb8e6" alt="Visitor Counter" />
@@ -14,8 +14,7 @@
 <p align="center"> ಄ вє ѕυяє тσ ѕιgη ѕтяαωραgє αη∂ αтα вєƒσяє уσυ ℓєανє...👀
 <p align="center"> . ݁₊ ⊹ . ݁˖ 𓆝 𓆟 𓆞 𓆝 𓆟 . ݁༉‧₊˚. 
 
-<p align="center"><img width="750" height="180" alt="Image" src="https://github.com/user-attachments/assets/0eedf027-e6ad-4c27-8303-bc6ce250707f" />
+<p align="center"><img width="770" height="300" alt="Image" src="https://github.com/user-attachments/assets/cc74edda-5ee8-45c5-9c7a-ce94e03b0e7a" />
 
 <p align="center"> ≿━━━━━━━━━━━༺ ⊱⋆⊰ ༻━━━━━━━━━━━≾
   
-<p align="center"><img width="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/62c1b3e6-b8ed-44e6-beb7-1827cba2561c" />
