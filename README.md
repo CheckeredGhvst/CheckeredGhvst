@@ -18,5 +18,4 @@
 <p align="center"> ≿━━━━━━━━━━━༺ ⊱⋆⊰ ༻━━━━━━━━━━━≾
 
 <p align="center"><img width="770" height="300" alt="Image" src="https://github.com/user-attachments/assets/cc74edda-5ee8-45c5-9c7a-ce94e03b0e7a" />
-  
-<p align="center"><img width="178" height="350" alt="Image" src="https://github.com/user-attachments/assets/1f245c67-a407-4ed9-87a7-7184b69896cf" />
+
